@@ -1,1 +1,1 @@
-# thepeanutman98.github.com
+# thepeanutman98.github.io
